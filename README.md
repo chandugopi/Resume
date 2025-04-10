@@ -1,2 +1,2 @@
-# chandanachaitanya.github.io
+# chandu.github.io
 My ePortfolio
